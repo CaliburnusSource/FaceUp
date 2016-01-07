@@ -1,0 +1,1 @@
+Puede evitar el paso de tener que utilizar un navegador web para utilizar Facebook. perfecto para un netbook, tablet con windows o PC. Utiliza la Red Social Facebook desde tu Escritorio Windows sin tener que pasar por tu navegador Web.
